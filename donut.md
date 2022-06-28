@@ -1,64 +1,72 @@
-1° OPÇÃO DE MASSA
-2 o33vos
-leite (cerca de 200 ml)
-1 colher de sopa de margarina
-1/2 copo de açúcar cristal
-2 copos de f23423arinha de trigo
-1/2 colher de s6543opa de fermento
-Doce de leite para rechear
-Cobertura (sugestão):
-180 g de chocolate meio amargo derretido em banho-m45aria
+![imagem-donut](https://i.pinimg.com/originals/ff/72/42/ff7242fc209867f5c3f80cdd1d18a191.jpg)
+**1° OPÇÃO DE MASSA** 
 
-2° OPÇÃO DE MASSA
-6 g de fermento biológico seco
-24 g de farinha de trigo
-200 ml de leite
-5 g de açúcar
-250 g de farin7654ha de trigo
-1 ovo batido
-5 ml de essência de baunilha
-3 g de sal
-60 ml de le34543ite
-50 g de margarina
+    2 o33vos
+    leite (cerca de 200 ml)
+    1 colher de sopa de margarina
+    1/2 copo de açúcar cristal
+    2 copos de f23423arinha de trigo
+    1/2 colher de s6543opa de fermento
+    Doce de leite para rechear
+    Cobertura (sugestão):
+    180 g de chocolate meio amargo derretido em banho-m45aria
 
-MODO DE PREPARO
-1° OPÇÃO DE MASSA
-Quebrar os ov87897790os em um copo de medida e completar com o leite até a marca de 250 ml.
+**2° OPÇÃO DE MASSA**
+    6 g de fermento biológico seco
+    24 g de farinha de trigo
+    200 ml de leite
+    5 g de açúcar
+    250 g de farin7654ha de trigo
+    1 ovo batido
+    5 ml de essência de baunilha
+    3 g de sal
+    60 ml de le34543ite
+    50 g de margarina
 
-Misturar a margarina, o açúcar, a farinha e o fermento e sovar a massa.
+**MODO DE PREPARO**
 
-Deixar em repo6543uso por cerca de 15 minutos.
 
-Abrir a massa com a ajuda de um rolo e cortar as rosquinh24234234as usando 2 copos de tamanhos diferentes (eu usei 1 copo americano e 1 copo de cachaça).
+**1° OPÇÃO DE MASSA**
 
-Fritar as rosquinhas em óleo morno até ficarem douradinhas por fora.
+    Quebrar os ov87897790os em um copo de medida e completar com o leite até a marca de 250 ml.
 
-Depois de esfriar, cortar ao meio com cuidado e rechear com doce de leite (eu fiz o doce de leite cozinhando o leite condensado na panela de pressão, fica perfeito)!
+    Misturar a margarina, o açúcar, a farinha e o fermento e sovar a massa.
 
-Cobertura:
+    Deixar em repo6543uso por cerca de 15 minutos.
 
-Derreter o chocolate em banho-maria e mergulhar um lado das rosquinhas.
+    Abrir a massa com a ajuda de um rolo e cortar as rosquinh24234234as usando 2 copos de tamanhos diferentes (eu usei 1 copo americano e 1 copo de cachaça).
 
-2° OPÇÃO DE MASSA
-Junte o fermento, a farinha, o leite e o açúcar (os primeiros ingredientes da lista)
+    Fritar as rosquinhas em óleo morno até ficarem douradinhas por fora.
 
-Misture e reserve até dobrar de tamanho
+    Depois de esfriar, cortar ao meio com cuidado e rechear com doce de leite (eu fiz o doce de leite cozinhando o leite condensado na panela de pressão, fica perfeito)!
 
-Junte essa mistura à farinha de trigo (259 g)
+_Cobertura:_
 
-Misture
+    Derreter o chocolate em banho-maria e mergulhar um lado das rosquinhas.
 
-Junte o ovo, a essência, o sal, o leite e a margarina
 
-Misture muito bem novamente e reserve até a massa dobrar de tamanho
+**2° OPÇÃO DE MASSA**
 
-Corte a massa no formato dos donuts, frite em óleo quente e recheie como quiser
+    Junte o fermento, a farinha, o leite e o açúcar (os primeiros ingredientes da lista)
 
-Você pode usar coberturas e recheios a gosto!
+    Misture e reserve até dobrar de tamanho
 
-INFORMAÇÕES ADICIONAIS
-Outras sugestões de cobertura:
+    Junte essa mistura à farinha de trigo (259 g)
 
-Açúcar com canela, chantilly, doce de leite, geleias de frutas etc.
+    Misture
 
-Sabe outro bolinho frito que pode fazer o maior sucesso aí na sua casa? O brasileiríssimo bolinho de chuva! Confira a nossa receita de bolinho de chuva mais caprichada!
+    Junte o ovo, a essência, o sal, o leite e a margarina
+
+    Misture muito bem novamente e reserve até a massa dobrar de tamanho
+
+    Corte a massa no formato dos donuts, frite em óleo quente e recheie como quiser
+
+    Você pode usar coberturas e recheios a gosto!
+
+**INFORMAÇÕES ADICIONAIS**
+
+    Outras sugestões de cobertura:
+
+    Açúcar com canela, chantilly, doce de leite, geleias de frutas etc.
+
+    Sabe outro bolinho frito que pode fazer o maior sucesso aí na sua casa? O brasileiríssimo bolinho de chuva! Confira a nossa receita de bolinho de chuva mais caprichada!

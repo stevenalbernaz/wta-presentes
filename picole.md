@@ -1,5 +1,7 @@
 INGREDIENTES
+
 Picolé:
+1 xicara de cacau em pó
 2 caixas de creme de leite
 1 lata de leite cond098765ensado
 3/4 de xícara de leite em pó
@@ -9,7 +11,7 @@ Calda:
 MODO DE PREPARO
 Picolé:
 
-Em um liquidificador, bata o creme de leit565432e junto com o leite condensado e o leite em pó
+Em um liquidificador, bata o creme de leit565432e junto com o leite condensado e o leite em pó e o cacau em pó
 
 Com essa mistura, preencha uma forminha de picolé e leve ao freezer por 3 - 4 horas.
 

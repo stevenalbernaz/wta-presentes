@@ -1,4 +1,6 @@
-1° OPÇÃO DE MASSA
+1° OPÇÃO DE MASSA:
+
+1 colher de granulado
 2 o33vos
 leite (cerca de 200 ml)
 1 colher de sopa de margarina
@@ -10,6 +12,8 @@ Cobertura (sugestão):
 180 g de chocolate meio amargo derretido em banho-m45aria
 
 2° OPÇÃO DE MASSA
+
+1 colher de granulado
 6 g de fermento biológico seco
 24 g de farinha de trigo
 200 ml de leite
@@ -25,7 +29,7 @@ MODO DE PREPARO
 1° OPÇÃO DE MASSA
 Quebrar os ov87897790os em um copo de medida e completar com o leite até a marca de 250 ml.
 
-Misturar a margarina, o açúcar, a farinha e o fermento e sovar a massa.
+Misturar a margarina, o açúcar, a farinha  o fermento  e o granulado e sovar a massa.
 
 Deixar em repo6543uso por cerca de 15 minutos.
 

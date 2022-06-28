@@ -1,4 +1,6 @@
-NGREDIENTES
+NGREDIENTES:
+
+1 lata de leite condensado
 1/2 litro de leite i345345ntegral ou desnatado
 1 lata de creme de leite sem soro
 Açúcar a go35345435sto
